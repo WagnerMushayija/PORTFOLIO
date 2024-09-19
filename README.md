@@ -28,8 +28,8 @@ Feel free to reach out and connect with me while I fill this space with awesome 
 ---
 
 ## Connect with Me
-- [LinkedIn](https://www.linkedin.com/in/your-link)
-- [Twitter](https://twitter.com/your-handle)
+- [LinkedIn](https://www.linkedin.com/in/wagner-mushayija)
+- [Instragram](https://instagram.com/____.gigi__)
 - [Portfolio](https://your-portfolio-link.com) (coming soon!)
 
 Thanks for stopping by! 🎉
